@@ -23,6 +23,7 @@
  - 🔭 Passionate about technology and software development.
  - 🌱 Exploring new frameworks and tools to enhance my skills.
  - 💬 Let's connect and collaborate on interesting projects!
+ - 📫 How to reach me tomaslicciardilopez@gmail.com
 
 <br />
 

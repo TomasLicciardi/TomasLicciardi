@@ -24,6 +24,8 @@
  - 🌱 Exploring new frameworks and tools to enhance my skills.
  - 💬 Let's connect and collaborate on interesting projects!
  - 📫 How to reach me tomaslicciardilopez@gmail.com
+ - 🌎 English level: **B2**
+ - 📄 [Check my CV here](https://drive.google.com/file/d/1WCalZt4Yr-rRRgKa6XGPMkD4kMxhpIZI/view?usp=sharing)
 
 <br />
 

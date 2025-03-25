@@ -25,7 +25,7 @@
  - 💬 Let's connect and collaborate on interesting projects!
  - 📫 How to reach me tomaslicciardilopez@gmail.com
  - 🌎 English level: **B2**
- - 📄 [Check my CV here](https://drive.google.com/file/d/1WCalZt4Yr-rRRgKa6XGPMkD4kMxhpIZI/view?usp=sharing)
+ - 📄 [Check my CV here]([https://drive.google.com/file/d/1WCalZt4Yr-rRRgKa6XGPMkD4kMxhpIZI/view?usp=sharing](https://drive.google.com/file/d/1UO1us0mDlfQG0bD9Ap9kj7s-LjbSs_yr/view?usp=sharing))
 
 <br />
 
